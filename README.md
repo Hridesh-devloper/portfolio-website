@@ -30,4 +30,3 @@ If you’d like to connect or collaborate, feel free to reach out:
 
 Email:hrideshkumarbth@gmail.com
 
-LinkedIn: (your LinkedIn link)
